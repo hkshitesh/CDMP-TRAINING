@@ -21,3 +21,7 @@ https://forms.office.com/r/hbCNJUBUey
 ## QUIZ 10 LINK
 
 https://forms.office.com/r/Rk4qaz1Yps
+
+## UDEMY CDMP Practice Test Link
+
+https://www.udemy.com/course/cdmp-data-management-exam-prep-800-practice-questions/
